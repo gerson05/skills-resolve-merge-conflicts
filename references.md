@@ -1,3 +1,2 @@
-# References
 
-* octocat 1 😈
+Referencias disponibles bajo soborno de café.
